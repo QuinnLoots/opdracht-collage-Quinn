@@ -1,1 +1,2 @@
-# opdracht-collage-Quinn
+# opdracht collage 
+# Quinn
